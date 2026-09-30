@@ -1,0 +1,1 @@
+# district-panel-kazakhstan
